@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+* 🎸Radiohead dude
+* 📘 Murakami Dance, Dance, Dance
+* 🎮 Elden ring
